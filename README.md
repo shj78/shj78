@@ -1,3 +1,3 @@
-#### Hi, I'm Hyejin! 👋🏼
+#### Hi, I'm Hyejin 👋🏼
 
 
